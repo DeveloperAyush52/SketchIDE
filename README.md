@@ -60,6 +60,8 @@ We value your feedback and are here to support you along the way. If you have an
 
 📧 Email: You can also email us at developerrajendrahelp@gmail.com for assistance.
 
+Also Mail to gamerayush52@gmail.com for better assistance
+
 
 ## 🎉Happy coding with SketchIDE! 🎉
 
